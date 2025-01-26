@@ -14,7 +14,7 @@
  
 <br>
  
-### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
+### Em busca do meu primeiro emprego na area de PROGRAMAÇÃP
  
 <div> 
 </div>
